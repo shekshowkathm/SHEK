@@ -1,2 +1,0 @@
-# SHEK
-mosh engineering college
